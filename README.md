@@ -1,0 +1,2 @@
+# KEPO TA AWKMU? WKWKWKKW
+semangat yo
